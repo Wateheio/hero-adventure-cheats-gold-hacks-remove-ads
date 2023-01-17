@@ -1,2 +1,5 @@
-# hero-adventure-cheats-gold-hacks-remove-ads
-hero adventure dark rpg cheats unlimited gold hacks no ads full guide
+# hero adventure dark rpg cheats unlimited gold hacks no ads full guide
+
+hero adventure dark rpg cheats unlimited gold hacks no ads full guide - More specifically, Rose Rest Inn is located in the southwest of the town. It has three tags: the basic "work" tag, which is very similar to the tag in the bulletin board of the first town. A useful "inn" tag can restore your health and mana, and a "tavern" tag, where you can pay 1000 gold to get the eight trigrams information. In this game, it means finding the position of NPC. They will not only tell you where they are, but also mark your compass. This will display an arrow on your screen to tell you where the tavern owner last saw NPC. The author assumes it is Rose. This makes it easier for you to get task rewards after completing the task. Please note that you will not get all the information of all NPCs at one time, and 1000 gold coins can be used for 3 NPCs at one time. Later, you may find that other towns have their own inns and can do the same thing with hero adventure codes.
+
+[see now](https://fengmod.top/hero-adventure/)
